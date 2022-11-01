@@ -7,4 +7,4 @@
 
 ## Q & A
 
-If you have any questions, please contact me at lanping
+If you have any questions, please email me at lanping_tech@qq.com
